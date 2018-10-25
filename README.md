@@ -3,7 +3,9 @@
 ## Table of contents
 
 Historia
+
 Transformación digital
+
 Estrategias que toman las empresas que ganan en el día de hoy
 
 
